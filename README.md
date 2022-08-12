@@ -1,2 +1,2 @@
-# Hello-World
-The world is beautiful, filled with many wonderful things. 
+# A New Day
+The main raises every morning, and the birds sing in harmony.
